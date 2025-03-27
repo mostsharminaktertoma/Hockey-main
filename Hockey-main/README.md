@@ -1,4 +1,0 @@
-# Hockey
-# Hockey
-# Hockey
-# Hockey
